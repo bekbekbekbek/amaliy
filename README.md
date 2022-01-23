@@ -1,0 +1,2 @@
+# amaliy
+amaliy ish
